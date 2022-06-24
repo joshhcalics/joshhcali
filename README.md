@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @prodbybinger
+- 👋 Hi, I’m ricky palmer
 - 👀 I’m interested in ... ROFLing 24/7
 - 🌱 I’m currently learning ... fortnite tips n tricks
 - 💞️ I’m looking to collaborate on ... duos for warzone
