@@ -1,4 +1,4 @@
-- 👋 Hi, I’m ricky palmer
+- 👋 Hi, I’m josh h :3
 - 👀 I’m interested in ... ROFLing 24/7
 - 🌱 I’m currently learning ... fortnite tips n tricks
 - 💞️ I’m looking to collaborate on ... duos for warzone
